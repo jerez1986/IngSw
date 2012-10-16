@@ -3,7 +3,7 @@
 Deus Ex: Human Revolution
 =========================
 
-**Deus Ex: Human REvolution** (*Deus Ex 3*) [DE3](http://www.deusex.com/ "DE3"), es el tercer videojuego de rol y acción en primera persona Deus EX, donde la cual es la precueela de Deux Ex. Ha sido desarrollado por [Eidos Montreal](https://eidos.com/ "Eidos Montreal"). Warren Spector y Harvey Smith, los directores creativos de los dos primeros juegos, no participaron en éste proyecto.
+**Deus Ex: Human REvolution** (*Deus Ex 3*) [DE3](http://www.deusex.com/ "DE3"), es el tercer videojuego de rol y acción en primera persona Deus EX, donde la cual es la precueela de Deux Ex. Ha sido desarrollado por [Eidos Montreal](https://http://eu.square-enix.com/en/ "Eidos Montreal"). Warren Spector y Harvey Smith, los directores creativos de los dos primeros juegos, no participaron en éste proyecto.
 
 Historia
 --------
