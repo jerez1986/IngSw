@@ -26,4 +26,4 @@ Personajes
 Opinión
 -------
 
-Deus Ex: Human Revolution recivió muy buenas críticas durante su estreno. PC Gamer UK le dio un porcentaje de 94%. Muchos criticos lo han considerado el Juego del Año 2011  incluso por encima de los apremiados y alabados Batman: Arkham City y The Elder Scrolls V.Teniendo muy buena jugabilidad, una excelente historia, situaciones cambiantes, es decir, puedes afrontar de sitintas maneras la situación que se te presenta, una excelente gráfica y se puede encontrar para ps3, xbox360 y Pc.
+Deus Ex: Human Revolution recivió muy buenas críticas durante su estreno. PC Gamer UK le dio un porcentaje de 94%. Muchos criticos lo han considerado el Juego del Año 2011  incluso por encima de los apremiados y alabados Batman: Arkham City y The Elder Scrolls V.Teniendo muy buena jugabilidad, una excelente historia, situaciones cambiantes, es decir, puedes afrontar de distintas maneras la situación que se te presenta, una excelente gráfica y se puede encontrar para ps3, xbox360 y Pc.
